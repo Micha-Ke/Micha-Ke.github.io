@@ -7,3 +7,5 @@ In Manfred Bomms Krimis liegen Dichtung und Wahrheit nah beieinander. Nahezu imm
 * Kompetent
 * Gutmütig
 
+Häberle sagt:
+> Konzernchefs und Politiker sind heutzutage nur noch schwätzer keine schaffer mehr. 
