@@ -9,3 +9,6 @@ In Manfred Bomms Krimis liegen Dichtung und Wahrheit nah beieinander. Nahezu imm
 
 Häberle sagt:
 > Konzernchefs und Politiker sind heutzutage nur noch schwätzer keine schaffer mehr. 
+
+<img src="https://m.media-amazon.com/images/I/51Xj21rtV+L._SY346_.jpg"/>
+
